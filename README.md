@@ -1,2 +1,2 @@
 Abdullah Hakan Şişik- 040200230
-Çağatay Özdemir
+Çağatay Özdemir- 0402220784
