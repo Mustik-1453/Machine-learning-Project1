@@ -1,1 +1,2 @@
-# Machine-learning-Project1
+Abdullah Hakan Şişik- 040200230
+Çağatay Özdemir
